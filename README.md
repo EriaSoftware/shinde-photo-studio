@@ -1,0 +1,1 @@
+# shinde-photo-studio
